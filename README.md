@@ -1,1 +1,3 @@
-# Avalia-o--bill
+Alberane confesso que não foi facil chegar ate aqui, estou achando bem dificil e venho aprendendo a cada dia afinal esta tudo sendo novidade e as vezes acabo me perdendo e tendo que quebrar cabeça para poder chegar em um resultado, e fiz isso e cheguei em um porém não sei se esta correto.
+Desculpa se não conseguir terminala de maneira correta.
+Agradeço pela sua compreensão e paciência enquanto trabalho para corrigir essa situação. Se houver alguma ação  que você gostaria que eu tomasse que melhorasse a situação, estou aberta a sugestões e dicas para poder estar mais pronta para realisaçoes de determinada atuvidade e estou disposta em fazer o necessário para corrigir.
